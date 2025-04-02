@@ -1,0 +1,1 @@
+This is for my to get god as a programmer i left behind this and i want to become a better programmer this will be uploading from the time
